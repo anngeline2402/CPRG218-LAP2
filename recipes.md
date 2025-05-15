@@ -83,6 +83,10 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- 3/4 cup milk
+- 30g Italy cheese
+- 50g tomatos 
+- 60g potatos
 
 Instructions:
 1. Preheat grill to medium-high heat.
