@@ -28,6 +28,25 @@ Instructions:
 4. Bake for 20-25 minutes or until lightly browned and bubbly.
 5. Serve hot with tortilla chips, pita chips, or crackers.
 
+### Sushi Roll
+
+Ingredients:
+2 cups cooked sushi rice
+2 tbsp rice vinegar
+Nori (seaweed sheets)
+Fillings of your choice (e.g. cucumber, avocado, salmon, crab sticks, tuna)
+Soy sauce, pickled ginger, and wasabi (for serving)
+
+Instructions:
+1. Prepare the rice: Mix cooked rice with rice vinegar and let it cool.
+2. Lay the nori: Place a sheet of nori on a bamboo mat (shiny side down).
+3. Add the rice: Spread a thin layer of rice over the nori, leaving about 1 inch at the top edge.
+4. Add fillings: Place your chosen fillings horizontally across the center of the rice.
+5. Roll it up: Use the bamboo mat to tightly roll the sushi from the bottom up, pressing gently to keep it firm.
+6. Cut and serve: Slice the roll into bite-sized pieces with a sharp, wet knife. Serve with soy sauce, pickled ginger, and wasabi.
+
+
+
 ### Bruschetta
 
 Ingredients:
