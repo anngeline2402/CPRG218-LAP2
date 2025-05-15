@@ -90,6 +90,20 @@ Instructions:
 6. Assemble sandwiches with chicken, lettuce, tomato, and mayonnaise.
 
 ## Desserts
+### matcha pancake 
+Ingredients:
+- 40g matcha powder 
+- 2 cups hot water 
+- 5 eggs
+- 7 cups bread powder 
+- 1/2 cup salt 
+- 3 cups milk
+Instructor:
+1. Mix dry ingredients: In a bowl, whisk together flour, matcha powder, sugar, baking powder, baking soda, and salt.
+2. Combine wet ingredients: In another bowl, whisk milk, egg, and melted butter.
+3. Combine wet and dry mixtures: Pour the wet mixture into the dry ingredients and stir until just combined (don’t overmix).
+4. Cook the pancakes: Heat a non-stick pan over medium heat. Lightly butter the surface. Pour 1/4 cup of batter for each pancake. Cook until bubbles form on top, then flip and cook until golden.
+5. Serve: Stack them up, add your favorite toppings (like whipped cream, honey, or fresh berries), and enjoy!
 ### Chocolate Chip Cookies
 
 Ingredients:
