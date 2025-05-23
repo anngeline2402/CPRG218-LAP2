@@ -153,3 +153,30 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Beverage
+### matcha
+Ingredients:
+
+- 1 tsp matcha powder (preferably ceremonial grade)
+- 2 oz (about 60 ml) hot water (not boiling — around 175°F / 80°C)
+- 6 oz (about 180 ml) milk of your choice (dairy, oat, almond, soy, etc.)
+- 1–2 tsp honey, maple syrup, or sweetener of your choice (optional)
+
+Tools:
+- Small whisk (traditional bamboo whisk or regular one)
+- Small bowl or cup
+- Milk frother (optional)
+
+Instructions:
+
+1. Sift the matcha powder into a bowl or cup to prevent clumps.
+2. Add hot water and whisk vigorously in a zigzag (M or W) motion until smooth and frothy.
+3. Heat your milk in a saucepan or microwave until warm but not boiling.
+4. Froth the milk using a milk frother or by shaking it in a jar with a lid until foamy.
+5. Pour the matcha mixture into a mug. Add your sweetener if using.
+6. Top with the frothed milk. Optional: dust with a little extra matcha powder for garnish.
+7. Stir gently and enjoy!
+
+
+
